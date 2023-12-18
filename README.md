@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jeffreypang1097478
+- 👋 Hi, I’m a dude.
 - 👀 I’m interested in stuff.
 - 🌱 I’m currently learning stuff.
 - 💞️ I’m looking to collaborate on some stuff.
